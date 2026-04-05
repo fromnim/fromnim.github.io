@@ -1,1 +1,1 @@
-anything I think important comes here
+climbing, math, wordplay, literature, art, making things, repurposing old crap to new crappy solutions, orthinology{lonely birdfeeder}, philosophy?, running, video games{metroidvania, terraria}, typography, headaches, mundane life, I can go on but that's indulgence
