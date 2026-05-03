@@ -3,3 +3,4 @@
 3. animal spelled backwards is lamina.
 4. the opposite of lack is a unit of energy "kcal"
 5. strap the parts for me please!
+6. i completely forgot about it lolo
