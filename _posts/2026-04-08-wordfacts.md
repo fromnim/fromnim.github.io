@@ -4,4 +4,5 @@
 4. the opposite of lack is a unit of energy "kcal"
 5. strap the parts for me please!
 6. i completely forgot about it lolo
-Linus as in Linus Torvalds spells out to be Sunil backwards!
+7.Linus as in Linus Torvalds spells out to be Sunil backwards!
+8.A planet collapsing into another Devolved while it revolved.
