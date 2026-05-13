@@ -6,3 +6,4 @@
 6. i completely forgot about it lolo
 7.Linus as in Linus Torvalds spells out to be Sunil backwards!
 8.A planet collapsing into another Devolved while it revolved.
+9.If you are a doomer, then you should remood!
